@@ -40,7 +40,7 @@
 
 โปรดตรวจสอบให้แน่ใจว่าได้ให้เครดิต NSTIOM เมื่อคุณแจกจ่ายหรือสอนระบบนี้ต่อ ขอบคุณ!
 
-[คลิปสอน](URL)
+[คลิปสอน](https://youtu.be/7wGMGw8HvFk?si=jIfrYGOzB2crRU8V)
 
 [Youtube](https://www.youtube.com/@NSTIOM)
 
